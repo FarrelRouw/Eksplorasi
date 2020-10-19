@@ -1,5 +1,6 @@
 # Eksplorasi
-beginner 
+FARREL ROUW
+16020164
 
 
 recently, two google products
